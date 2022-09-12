@@ -12,3 +12,5 @@ For example, if you are choosing a salesperson, you may be looking for someone w
 On the other hand, if you are looking for an accountant, you may want to see Honesty, Reliability & Truthfulness as the top three personality strengths.
 Similarly, it should be easy in most job roles to determine the top three personality strengths and match them with suitable candidates.
 This can save you time and effort at the point of recruitment and save your company a great deal of pain at a later stage. 
+
+https://ourgoodspace.page.link/pd3Qs3Rfvk6egtRW8
